@@ -7,9 +7,9 @@
 
 - 👨‍💻 All of my projects are available at [agahberkknglr/projects](https://github.com/agahberkknglr?tab=repositories)
 
-- 📫 How to reach me **yedekguler@gmail.com**
+- 📫 How to reach me **guleragahberkin@gmail.com** or **yedekguler@gmail.com**
 
-- 📄 Know about my experiences [resume](https://drive.google.com/file/d/1m0ZdXmdfg1eoP3NkEMnUXWHXeG6rB-rv/view?usp=sharing)
+- 📄 Know about my experiences [resume](https://drive.google.com/file/d/1UkO7eLK1snUXoh-ryP7q44iOWS5ciEIt/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
